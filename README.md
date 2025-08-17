@@ -1,0 +1,2 @@
+# kokushibou-
+untuk zeon saja
